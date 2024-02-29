@@ -11,6 +11,6 @@ Ich bin SAP Berater für das PP-Modul und Softwareentwickler aus Kassel, Deutsch
 
 ## 📫 Erreichen Sie mich
 
-- **LinkedIn:** [Link]([[https://www.linkedin.com/in/felix-r-763a09b7/])](https://www.linkedin.com/in/felix-r-763a09b7/)]
+- **LinkedIn:** [Link](https://www.linkedin.com/in/felix-r-763a09b7/)
 
 Ich bin immer auf der Suche nach neuen Herausforderungen und Möglichkeiten, meine Fähigkeiten weiterzuentwickeln. Wenn Sie an einer Zusammenarbeit interessiert sind oder Fragen haben, zögern Sie nicht, mich zu kontaktieren!
